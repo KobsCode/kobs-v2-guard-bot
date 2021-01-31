@@ -1,8 +1,8 @@
 # **Bilgilendirme**
 
-> **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız Kayıt Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
+> **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız Gelişmiş Guard Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
 
-> [Videoya Gitmek İçin Tıkla](https://youtu.be/yo-tGTPyl58) 
+> [Videoya Gitmek İçin Tıkla](https://youtu.be/WDrxhZ7fH8o) 
 
 > [Discord Sunucusuna Katılmak İçin Tıkla](https://discord.gg/axjXvA9cCa)
 
